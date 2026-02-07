@@ -52,6 +52,10 @@ Este projeto é otimizado para buscas relacionadas a:
 - **Baixar video do kwai s3m marca d'água**
 - **Baixar vídeos do kwai marca d'água online gratis**
 - **Tirar marca d'água kwai android**
+- **kwai app video download**
+- **Video Downloader for kwai**
+- **kwai downloader**
+- **kwai sem marca d'água**
 
 ---
 
